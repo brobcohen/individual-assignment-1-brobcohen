@@ -1,1 +1,1 @@
-# inidividual-assignment-1-brobcohen
+# individual-assignment-1-brobcohen
